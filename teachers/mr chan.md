@@ -4,4 +4,5 @@ Section 2-how does Mr chan look like
 He is very tall,he has a long face and a high forehead
 section 3_how are Mr chan's lessons like
 His lessons are intresting and compelling, it is hard to feel bored during his lessons even if the topic itself is boring
+He tries to make the lesson fun with some jokes
 Section 4- something intresting about Mr chan
