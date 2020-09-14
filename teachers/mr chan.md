@@ -8,3 +8,4 @@ He tries to make the lesson fun with some jokes
 Section 4- something intresting about Mr chan
 he is very friendly and quite humourous
 he is a 'scammer'
+"Your class boys very weird HAHA" 
